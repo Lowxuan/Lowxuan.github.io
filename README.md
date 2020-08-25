@@ -1,5 +1,4 @@
-# Lowxuan.github.io
-....
 
-=== Main idea ===
+Main idea
+=========
 Zhu Shaojiu is the most beautiful woman in the world!
